@@ -7,6 +7,8 @@ Hello this is my history homework please see below for the link and alternively 
 Follow the link below
 
 https://hhw-ls-71-7l2.psrl.ddns.net
+or
+https://hhw-ls-71-7l2.keystonescare.co.uk/
 If the link above does not work please contact me at luca.splat.2020@gmail.com
 
 2.Server deployment 
